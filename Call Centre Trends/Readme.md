@@ -8,6 +8,7 @@ We are enabling employees who are motivated to further accelerate their skills t
 
 ## Here is your Task :-
 
-https://cdn.theforage.com/vinternships/companyassets/4sLyCPgmsy8DA6Dh3/9RbnZnMj2k93xffms/Screen%20Shot%202021-06-15%20at%205.23.06%20PM.png
+![image](https://github.com/sohang05/PWC-Power-Bi-Virtual-Case-Experience/assets/73344291/5a91625a-d672-40a4-936c-32be5c79aafb)
+
 
 
